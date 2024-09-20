@@ -1,6 +1,6 @@
 # 狗狗云机场官网地址
 
-最新地址：[gougouvpn.top](https://gougouvpn.top/index.php#/register?code=jYygeX1J)
+最新地址：[gougouvpn.top](https://gouvpn.cn/index.php#/register?code=jYygeX1J)
 
 ## 狗狗云介绍
 
